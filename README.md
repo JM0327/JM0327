@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-I am Bella (Jiaming) from China. 
+I am Bella (Jiaming) from China.   
 Master student in BA orientation at HEC.
