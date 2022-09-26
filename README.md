@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 I am Bella (Jiaming) from China.   
-Master student in BA orientation at HEC.
+Master student in BA orientation at HEC Lausanne.
