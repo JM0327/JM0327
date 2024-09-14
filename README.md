@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-I am Bella (Jiaming) from China.   
-Master student in BA orientation at HEC Lausanne.
+I am Jiaming from China. A Master student in Business Analytics graduated from HEC Lausanne, Switzerland.
