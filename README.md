@@ -18,4 +18,4 @@ I am Jiaming from China.
 
 💬 A Master student in Business Analytics graduated from HEC Lausanne, Switzerland.   
 
-🔭 I am currently working at Honeywell as an Operation Offering Manager for Fire business.   
+🔭 I am currently working at Honeywell as a Product Manager for Fire business.   
